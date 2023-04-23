@@ -1,1 +1,0 @@
-# goutamkalburgi.github.io
